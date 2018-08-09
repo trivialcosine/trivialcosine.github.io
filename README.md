@@ -1,0 +1,1 @@
+# trivialcosine.github.io
